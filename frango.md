@@ -1,2 +1,0 @@
-#Stogonoff de Frango
-
